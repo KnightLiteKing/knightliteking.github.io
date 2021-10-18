@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Knight Lite King a.k.a. KLK.
+- 👀 I’m interested in creating webpages, coding, learning, video encoding, cryptocurrencies and Anime.
+- 🌱 I’m currently learning HTML, CSS etc.
+- 💞️ I’m looking to collaborate on Anime encoding projects.
+- 📫 How to reach me? Contant on Telegram: https://t.me/KnightLiteKing

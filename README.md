@@ -2,4 +2,4 @@
 - 👀 I’m interested in creating webpages, coding, learning, video encoding, cryptocurrencies and Anime.
 - 🌱 I’m currently learning HTML, CSS etc.
 - 💞️ I’m looking to collaborate on Anime encoding projects.
-- 📫 How to reach me? Contact on <a href="https://t.me/KnightLiteKing" target="_blank">Telegram</a>
+- 📫 How to reach me? Contact on <a href="https://t.me/KnightLiteKing" target="_blank">Telegram</a> or mail me at knightliteking@gmail.com
